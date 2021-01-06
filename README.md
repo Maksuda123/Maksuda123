@@ -3,4 +3,5 @@
 * 2021 GOals: Contribute more to open Source project and collabotare with other new creators.
 
 * Reach me:
-💬 Email:maksudamila864@gmail.com
+💬 Email: maksudamila864@gmail.com
+💬 LinkedIn: https://www.linkedin.com/in/maksuda-mila/

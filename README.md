@@ -4,7 +4,7 @@ I love coding with JavaScript. For this reason, I am passionately engaged in sol
 
 My Skills: Javascript, NodeJs, ExressJs, MongoDB, Git, GitHub, Algorithm, Problem Solving.
 
-Three month goals for skill development: Creative thinking, Critical Thinking, Business Problem Solving, GitGub contribute.
+Three month goals for skill development: Creative thinking, Critical Thinking, Business Problem Solving, GitHub contribute.
 
  Reach me:
 💬 Email: maksudamila468@gmail.com

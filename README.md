@@ -11,5 +11,4 @@ Three month goals for skill development: Creative thinking, Critical Thinking, B
 
 Youtube Link: https://www.youtube.com/channel/UCOmn4g5ZN7HzcZAnKsoHPMQ
 
-Facebook Page Link: https://www.facebook.com/maksuda0mila
 
